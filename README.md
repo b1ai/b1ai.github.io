@@ -1,6 +1,6 @@
 # b1   
 **Welcome to b1**   
-**Ai**  
+**Ai | Artificial intelligence**  
   
   
 ## Contact
