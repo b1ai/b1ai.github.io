@@ -1,6 +1,5 @@
 # b1   
-**Welcome to b1**   
-**Ai | Artificial intelligence**  
+**Welcome to b1 | Ai**   
   
 ## About
 Artificial intelligence  
