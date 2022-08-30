@@ -9,7 +9,8 @@
 **Social Media Optimization**  
   
 ## Contact  
-**Call WhatsApp Mail [b1](https://b1.neocities.org/)**  
+**Call WhatsApp Mail**
+## [b1](https://b1.neocities.org/)  
   
 ## Legal  
 **Michael Weber**  
