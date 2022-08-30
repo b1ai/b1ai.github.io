@@ -3,6 +3,7 @@
 **Ai | Artificial intelligence**  
   
 ## About
+Artificial intelligence
 Web Design | SEO | Applications  
 OnlineShops | Online Marketplaces  
 Design | Photography | Videography  
