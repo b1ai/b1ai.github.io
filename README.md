@@ -3,7 +3,7 @@
 ## Michael Weber
 ## **Contact**
 ---
-## **[WhatsApp](https://wa.me/message/JIWJISLKSAKQG1){:target="_blank"}**
+## **[WhatsApp](https://wa.me/message/JIWJISLKSAKQG1)**
 ---
 ## **[Mail](mailto:michael.weber.x@gmail.com)**
 ---
