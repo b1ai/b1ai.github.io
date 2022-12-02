@@ -7,4 +7,6 @@
 ---
 ## **[Mail](mailto:michael.weber.x@gmail.com)**
 ---
+<a href="[url](https://wa.me/message/JIWJISLKSAKQG1)" target="_blank">link</a>
+---
 © 2022 ICT.PAGES.DEV
