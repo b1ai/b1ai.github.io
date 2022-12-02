@@ -5,6 +5,6 @@
 ---
 ## **[Call](tel:+31687900332)**
 ---
-## **[WhatsApp](https://wa.me/message/JIWJISLKSAKQG1&target=_blank)**
+## **[WhatsApp](https://wa.me/message/JIWJISLKSAKQG1)**
 ---
 © 2022 ICT.PAGES.DEV
